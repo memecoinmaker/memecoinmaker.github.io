@@ -1,2 +1,2 @@
 # memecoinmaker.github.io
-Makin coolest coins in the blockchains.
+Check out my solana tokens launch!
